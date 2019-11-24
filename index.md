@@ -1,4 +1,4 @@
-Below are a collection of useful links to maximise the power of your vote in the antiquated FPTP system.  
+Below are a collection of useful links to maximise the power of your vote in the antiquated FPTP system. The top addresses are the URLs for those wishing to avoid the links.  
 
 Register to Vote @ https://www.gov.uk/register-to-vote
 
