@@ -1,7 +1,5 @@
 Below are a collection of useful links to maximise the power of your vote in the antiquated FPTP system. 
 
-What you need to do:
-
 Register to Vote - https://www.gov.uk/register-to-vote
 
 Students can use this site to check whether to vote in your home or away constituency - https://studentvoter.info
