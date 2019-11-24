@@ -4,11 +4,11 @@ Register to Vote @ https://www.gov.uk/register-to-vote
 
 [https://www.gov.uk/register-to-vote](https://www.gov.uk/register-to-vote)
 
-Students can use this site to check whether to vote in your home or away constituency - https://studentvoter.info
+Students can use this site to check whether to vote in your home or away constituency @ https://studentvoter.info
 
 [https://studentvoter.info](https://studentvoter.info)
 
-Check your political alignment with Vote For Policies - https://voteforpolicies.org.uk
+Check your political alignment with Vote For Policies @ https://voteforpolicies.org.uk
 
 [https://voteforpolicies.org.uk](https://voteforpolicies.org.uk)
 
